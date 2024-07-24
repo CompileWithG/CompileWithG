@@ -21,7 +21,7 @@
 
 - 📄 Know about my experiences [https://codewithkarthikg.hackerresume.io/320ffece-f7c0-4095-94a2-e102b0a25af6](https://codewithkarthikg.hackerresume.io/320ffece-f7c0-4095-94a2-e102b0a25af6)
 
-- ⚡ Fun fact: **I am Batman**
+- ⚡ Fun fact: **Linux>>>Windows**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
