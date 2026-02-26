@@ -6,4 +6,4 @@ Yap to me on **codewithkarthikg@gmail.com**
 
 
 
-**Fedora is goated**
+**Claude is taking my job(what job?)**
